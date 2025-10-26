@@ -44,49 +44,6 @@
 | Telegram电报僵尸粉                             | [@tgxiunv](https://t.me/tgxiunv)          | 1000人/¥10(1.4U)，稳定30天不掉落，可以使用[币安](https://accounts.binance.com/zh-CN/register?ref=896983517)、[欧易](https://www.chouyi.pro/zh-hans/join/50253981)等交易所红包，无手续费  |
 | 免费亚马逊云服务器 | [https://aws.amazon.com](https://aws.amazon.com/cn/free?trk=cae7b666-a896-474c-81fa-96c8aa124afd&sc_channel=sm) | 免费试用一年高速云服务器     |
 
-### 曝光不良频道，请勿轻信(Scammer)
-| 名字       | 链接                                                                 | 功能描述                                   |
-| :--------- | :------------------------------------------------------------------: | :---------------------------------------- |
-|景福宫高端商务|[https://t.me/+7hOI03rX7YVmOWVl](https://t.me/+7hOI03rX7YVmOWVl)|真实性不清楚，请勿轻信上当|
-| 微信同城交友 | [https://t.me/+ZTtVz1cWzxEzYzVk](https://t.me/+ZTtVz1cWzxEzYzVk)|  骗子(Scammer)    |
-| 反差 | [https://t.me/+JDUoBJ5yrFs1MjQ8](https://t.me/+JDUoBJ5yrFs1MjQ8)|  骗子(Scammer)    |
-| 天天约 | [https://t.me/+_yvm-dKJM7U2MDU0](https://t.me/+_yvm-dKJM7U2MDU0)|  骗子(Scammer)    |
-| 匿名配对 | [https://t.me/+FuSyM-6rCbA2YzQ8](https://t.me/+FuSyM-6rCbA2YzQ8)|  骗子(Scammer)    |
-| 美女集中营 | [https://t.me/+XJHyUov3p8IyMTdh](https://t.me/+XJHyUov3p8IyMTdh)|  骗子(Scammer)    |
-| 万人骑 | [https://t.me/+Igb0DxrXmrIxNTFk](https://t.me/+Igb0DxrXmrIxNTFk)|  骗子(Scammer)    |
-| 每日大赛 | [https://t.me/+ZbqO2hPFCDkxMDI6](https://t.me/+ZbqO2hPFCDkxMDI6)|  骗子(Scammer)    |
-| 女大学生 | [https://t.me/+nkz2J9UO3shjMDI0](https://t.me/+nkz2J9UO3shjMDI0)|  骗子(Scammer)    |
-| 培训基地 | [https://t.me/+OuYaup_LwzA4Y2Fk](https://t.me/+OuYaup_LwzA4Y2Fk)|  骗子(Scammer)    |
-| 匿名配对 | [https://t.me/+LRIm2YaCzGw5N2Rk](https://t.me/+LRIm2YaCzGw5N2Rk)|  骗子(Scammer)    |
-| 红杏出墙 | [https://t.me/+SsGBTah77zNkYTRk](https://t.me/+SsGBTah77zNkYTRk)|  骗子(Scammer)    |
-| 贫困少女 | [https://t.me/+qwcHNtFiW6JmNGI8](https://t.me/+qwcHNtFiW6JmNGI8)|  骗子(Scammer)    |
-| 围场少女 | [https://t.me/+QnxR39vELHJiYzUy](https://t.me/+QnxR39vELHJiYzUy)|  骗子(Scammer)    |
-| 临时情侣 | [https://t.me/+9UtuvRgMTGc5MmM0](https://t.me/+9UtuvRgMTGc5MmM0)|  骗子(Scammer)    |
-| 叔叔约我 | [https://t.me/+zaFgWOsUSPoyNWRk](https://t.me/+zaFgWOsUSPoyNWRk)|  骗子(Scammer)    |
-
-### 推广50U/月 
-| 名字       | 链接                                                                 | 功能描述                                   |
-| :--------- | :------------------------------------------------------------------: | :---------------------------------------- |
-|debot                             | [@debot](https://debot.ai?ref=240523)          | 实时自动检测各个聪明人钱包的买入和卖出情况   |
-|gmgn.ai|[gmgn.ai](https://gmgn.ai/r/L2wVVjGF)| 注于meme币追踪与交易辅助 的平台，通过“聪明资金”监控、链上数据分析、复制交易和风险提示等功能帮助用户发掘潜力币种|
-| hyperbot.network | [@hyperbot.network](https://hyperbot.network?ic=0xf6E03ed6740fBCF3255F07FD1758824D1eA32a15) | 由 AI 驱动的链上合约交易平台，聚合多个永续 DEX 的数据与执行，提供“鲸鱼追踪＋一键跟单”功能 |
-|奈飞小铺                             | [https://ihezu.fans](https://ihezu.fans/uqhwcn)          | 网飞、Spotify、Apple Music、油管、微软365合租，专属9折优惠码：FANXIAN   |
-
-### 交易所提币或者是购买USDT、币圈撸空投
-**❗❗️️❗一旦注册完成就不再会有永久减免的机会，注册时务必使用邀请码❗️❗️❗️**
-
-**❗❗️️❗别用乱用网上的钱包接收款项，只有交易所里面的钱才不存在黑钱黑U❗️❗️❗️**
-| 名字     | 链接 | 功能描述     |
-| :---        |    :----:   |          :--- |
-| 币安    |   [https://www.binance.com](https://accounts.binance.com/zh-CN/register?ref=FANXIAN)   | 邀请码：**FANXIAN**，币安交易所(持有bnb减免40%手续费)币安最近Alpha刷积分活动，空投每个月基本都可以领上万块，感兴趣可以看看[币安刷Alpha积分视频教程](https://www.youtube.com/results?search_query=%E5%B8%81%E5%AE%89alpha)|
-| 欧易OKX    |   [https://www.okx.com](https://www.chouyi.pro/zh-hans/join/50253981)   |      欧易交易所(减免30%手续费)邀请码：**50253981** ，OKX Boost(20%减免手续费)邀请码：**ZHUANMI**|
-| ByBit    |   [https://www.bybit.com](https://www.bybit.com/invite?ref=4VLKDMW)   |      ByBit交易所(减免30%手续费)邀请码：**4VLKDMW**|
-| Bitget    |   [https://www.bitget.com](https://www.bitget.org/zh-CN/referral/register?clacCode=QR4A7MPY&from=%2Fzh-CN%2Fevents%2Freferral-all-program&source=events&utmSource=PremierInviter)   |      Bitget交易所(减免40%手续费)邀请码：**QR4A7MPY**|
-| Gate.io    |   [https://www.gatesee.com](https://www.gatesee.com/signup/VLDFUFEOAW?ref_type=103)   |     Gate.io交易所(减免40%手续费)邀请码：**VLDFUFEOAW**|
-| 火币    |   [https://www.htx.com](https://www.htx.com.de/zh-cn/v/register/double-invite/?invite_code=xpi6a223&inviter_id=11346560)   |      火币交易所(减免30%手续费)邀请码：**xpi6a223**|
-| 抹茶    |   [https://www.mexc.co](https://promote.mexc.com/r/wIE7fPvG)   |      抹茶交易所(减免40%手续费)邀请码：**wIE7fPvG**|
-
-![](https://imgur.com/MlRDjeU.png)
 
 ### 机器人搭建有需要联系:[@tgxiunv](https://t.me/tgxiunv)
 | 项目                                       | 说明                                              | 价格            |
